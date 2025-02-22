@@ -1,1 +1,3 @@
 # finace_try
+jjhejdkkkkkkkkkkkkkf
+rrrrrrrrrr
